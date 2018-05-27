@@ -1,0 +1,2 @@
+# pelestaks
+bezsakars, pagaidaam
